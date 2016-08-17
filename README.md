@@ -1,0 +1,2 @@
+# Pazarlama
+Pazarlama
